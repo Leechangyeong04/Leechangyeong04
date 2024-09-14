@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 my name is Lee chang yeong!! nice to meet you!!
 
 <!--
 **Leechangyeong04/Leechangyeong04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
